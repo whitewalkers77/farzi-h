@@ -1,4 +1,4 @@
 # farzi-h
 aajh
-farzi h bhai fakat
+farzi h bhai fakat hi
 
